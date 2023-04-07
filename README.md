@@ -1,11 +1,15 @@
-hi, i'm ray/spence :-) you're probably here from ponytown so here's some info byi
-- i'm usually off tab or not paying attention so if you want to interact whisper me
-- i have a hard time socializing for many reasons. i may come off overly formal or awkward if we're not close, and would prefer if others initiate conversation rather than me. i may randomly stop talking because i get overwhelmed and burnt out by 1:1 conversation very easily so don't take it personally if i randomly go silent. i have trouble talking about things that aren't my interests if we're not close.
-- speaking of my interests! as of writing this, i'm really into little shop of horrors, ghostbusters, reanimator, talking heads, oingo boingo, cd and dvd collecting, and a LOT more. you can find a more exstensive list here: rentry.co/audreyii
-- i don't care if you copy my skins or boop me or etc etc just don't flirt with me or generally be weird. and don't chase me around if i walk away from you cuddling me or whatever sometimes i just don't want to be around people
-- i don't really have a dni, i'll just walk away from you if i don't like you.
-- PLEEEASE INTERACT IF WE HAVE INTERESTS IN COMMON!! I LOVE TALKING TO NEW PEOPLE ABOUT THEM, THEY ALL MAKE ME VERY HAPPY ESPECIALLY IF THEY'RE OBSCURE
-- i have dyslexia and bad hand-eye coordination, which may affect my spelling, reading, and typing speed
-- i can't read fancy fonts or typing quirks, if you use them i'll ignore you or tell you off (if you talk to me)
-
-i think that's all you need to know!! i'll update this if needed, but overall Yeah 👍 that's about it
+hi, read this if you're from ponytown!
+my name is ray/jeremy but you can also call me rj. i mainly use he/him pronouns but she/her is alright too.
+i'm nonbinary, genderqueer, and a butch lesbian
+i have a bunch of Mental Stuff that i'm not gonna list but i might bring them up in conversation and it affects my behavior
+i also have chronic pain and fatigue, which may cause me to leave randomly and be inactive for long periods of time. sorry!
+you probably came for my DNI, so here it is. i'll usually just hide you, but some of this stuff i can't just see from your skin or profile, so:
+- proshippers
+- bigots of any kind (obviously)
+- able-bodied ride the cyclone fans
+- dsmp/modern mcyter fans
+- you have fonts on your profile and/or a hard-to-read typing quirk
+- you're really negative or judgy about every little thing
+- you're against reality checking (obviously don't do it to random people but like also saying reality checking is inherently bad is anti-recovery and encourages people's delusions)
+anyways that's basically it for that. my boundaries outside of that are simple, just don't flirt with me/make sexual gestures towards me/generally be weird.
+i have a lot of interests but my main one right now is be more chill (as you could tell). i love musical theatre in general though! i also collect cds and dvds.
