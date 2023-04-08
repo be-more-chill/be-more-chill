@@ -1,4 +1,4 @@
-Hi, this is just info about me for ponytown!
+Hi, this is just info about me for ponytown! whispering me is best since I'm usually off tab or afk. you can touch me in game or whatever just don't flirt with me or do anything sexual. ok
 
 DNI since i know that's what you came here for:
 - proshippers
