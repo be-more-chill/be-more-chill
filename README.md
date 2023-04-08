@@ -1,16 +1,19 @@
-hi, read this if you're from ponytown! my name is ray/jeremy but you can also call me rj. i mainly use he/him pronouns but she/her is alright too. i'm nonbinary, genderqueer, and a butch lesbian. i have a bunch of Mental Stuff that i'm not gonna list but i might bring them up in conversation and it affects my behavior. i also have chronic pain and fatigue, which may cause me to leave randomly and be inactive for long periods of time. sorry!
+Hi, this is just info about me for ponytown!
 
-you probably came for my DNI, so here it is. i'll usually just hide you, but some of this stuff i can't just see from your skin or profile, so:
+DNI since i know that's what you came here for:
 - proshippers
-- bigots of any kind (obviously)
-- able-bodied ride the cyclone fans
-- dsmp/modern mcyter fans
-- you have fonts on your profile and/or a hard-to-read typing quirk
-- you're really negative or judgy about every little thing
-- you're against reality checking (obviously don't do it to random people but like also saying reality checking is inherently bad is anti-recovery and encourages people's delusions)
+- bigoted in any way
+- engage in cringe culture
+- you're against self-diagnosis (with research). i can explain why i advocate for self-diagnosis if you have genuine questions, but i won't reply if you say anything weird or condecending
+- and that's basically it. otherwise i'll just hide you
 
+about me:
+My name is Ray or Jeremy but you can call me RJ, i don't care. i use he/him mainly but idm she/her. i'm nonbinary and a butch lesbian
 
-anyways that's basically it for that. my boundaries outside of that are simple, just don't flirt with me/make sexual gestures towards me/generally be weird.
+i'm autistic (and many other unlisted stuff) and that affects how i may interact with people. i also have chronic pain and fatigue. it's hard for me to keep up small talk or very long conversations unless we're close
 
-
-i have a lot of interests but my main one right now is be more chill (as you could tell). i love musical theatre in general though! i also collect cds and dvds.
+interests:
+- musical theatre (in general)
+- theology
+- cds/dvds (i collect them ask me about me collection or tell me about yours Please)
+- and more, just talk to me and ill probably bring something up :^]
